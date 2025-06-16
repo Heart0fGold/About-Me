@@ -87,3 +87,7 @@ I *fictkin* for Ethan (and all his Poképasta vers., especially Blake), Slingsho
   ![tumblr_oeowo5yvov1vgzd4so2_250](https://github.com/user-attachments/assets/c131adf5-ea45-486d-83bc-c2cdb218a582)
 
   Byee~! Have a nice daayyy. 🌻🕊️
+ ![Spr_HGSS_Silver](https://github.com/user-attachments/assets/4a959e17-d894-48e7-941a-0803acae42b5)
+![Spr_B2W2_Blue](https://github.com/user-attachments/assets/1158366b-86d0-4c8f-9816-4dd06328fa38)
+  ![cyndaquil](https://github.com/user-attachments/assets/1e2e3712-442b-4536-87d0-58c0fd4f3c8b)
+![pokeball](https://github.com/user-attachments/assets/a310bbf8-0424-443e-86c2-57e634c02f86)
