@@ -28,9 +28,10 @@ PokéPasta enjoyer! (Snow on Mt. Silver HELL YEAH!)
 🌟 ⇢ ˗ˏˋ **Fandoms** ࿐ྂ 🌟
 
 - Pokémon 💖 (my current hyperfixation!)
-- The Mandela Catalogue 🔪
-- God of War ⚔️
 - Guts and Blackpowder💥
+- Phighting! ⚔️
+- The Mandela Catalogue 📷
+
 
 🎮 ︶꒦꒷♡ **Others** ♡꒷꒦︶ 🎮
 
@@ -43,9 +44,9 @@ PokéPasta enjoyer! (Snow on Mt. Silver HELL YEAH!)
 **˚ ༘♡ ·˚꒰ **Favourite Characters from Every Fandom** ꒱ ₊˚ˑ༄**
 
 - Ethan, Red, Calem, Erika, Colress, Steven, Blue, Silver, Serena, and Cynthia. For the Pokémons : Umbreon, Cyndaquil, Celebi, Victini, Sylveon, Hisuian Samurott, Serperior, Scorbunny, and Treecko (*Pokémon*)
-- Hermes, Helios, Heimdall, Atreus, Athena (*God Of War*)
+- I main Prussian Seaman, Officer, or Musician. If Prussia is not available, then usually use French or British, or just choose what's available. (*Guts and Blackpowder*)
+- Slingshot, Rocket, Medkit, Sword, and Shuriken (*Phighting!*)
 - Cesar Torres, Jonah Marshall, The Intruder, Adam Murray (*The Mandela Catalogue*)
-- I main Prussian Seaman or Musician. If Prussia is not available, then usually use French or British, or just choose what's available. (*Guts and Blackpowder*)
 
   ── ･ ｡ﾟ☆: **Languages** .☽ .* :☆ﾟ. ──
 
@@ -82,7 +83,7 @@ For PokéSpe/manga, I *only know* the characters and not the storyline.
 
 Also sign my strawpage! (strawpage currently having problems receiving drawing so yeah-)
 
-I *fictkin* for Ethan (and all his Poképasta vers., especially Blake), Slingshot, and Karl/1. Garde zu fuß Officer! ^^ (I doubt there'll be doubles cause ya'll fictkin either Blue, Red, or Silver).
+I *fictkin* for Ethan (and all his Poképasta vers., especially Blake), Slingshot, and Karl/Kaub Officer! ^^ (I doubt there'll be doubles cause ya'll fictkin either Blue, Red, or Silver).
 
   ![tumblr_oeowo5yvov1vgzd4so2_250](https://github.com/user-attachments/assets/c131adf5-ea45-486d-83bc-c2cdb218a582)
 
