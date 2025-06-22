@@ -50,7 +50,7 @@ PokéPasta enjoyer! (Snow on Mt. Silver HELL YEAH!)
 
   ── ･ ｡ﾟ☆: **Languages** .☽ .* :☆ﾟ. ──
 
-  You might have read this before. I mainly speak English and Indonesia. I can also speak German and French, tho not alot, just the basics :3. I'm learning Japanese and Greek. That's it.
+  You might have read this before. I mainly speak English and Indonesia. I can also speak German and French, tho not alot, just the basics :3. I'm trying to learn Russia and Greek. That's it.
 
  ![umbreon-pokemon](https://github.com/user-attachments/assets/25bde207-6dcc-4fd5-a512-a13973f62098)
 
