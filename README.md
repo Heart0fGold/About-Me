@@ -13,11 +13,11 @@ Names you can call me : Dark, Ethan, Slingshot, or Karl
 
 Age : 4-teen
 
-Nationality : IDN 🇮🇩 💞
+Nationality : IDN 🇮🇩 
 
 Fav colours : Golden, black, crimson, white, and cerulean.
 
-Likes : Playing games, drawing, sleeping, biology, history of Napoleonic Wars (or wars in general), Greek mythology, and psychological horror.
+Likes : Playing games, drawing, sleeping, biology, history of Napoleonic Wars and World Wars (or wars in general + some history of Revolutions), Greek mythology, and psychological horror.
 
 Gen 2 enthusiast! (Cyndaquil my boy <3)
 
@@ -44,9 +44,9 @@ PokéPasta enjoyer! (Snow on Mt. Silver HELL YEAH!)
 **˚ ༘♡ ·˚꒰ **Favourite Characters from Every Fandom** ꒱ ₊˚ˑ༄**
 
 - Ethan, Red, Calem, Erika, Colress, Steven, Blue, Silver, Serena, and Cynthia. For the Pokémons : Umbreon, Cyndaquil, Celebi, Victini, Sylveon, Hisuian Samurott, Serperior, Scorbunny, and Treecko (*Pokémon*)
-- I main Prussian Seaman, Officer, or Musician. If Prussia is not available, then usually use French or British, or just choose what's available. (*Guts and Blackpowder*)
+- Karl, Barry, American Ferryman, and Jacob. (*Guts and Blackpowder*)
 - Slingshot, Rocket, Medkit, Sword, and Shuriken (*Phighting!*)
-- Cesar Torres, Jonah Marshall, The Intruder, Adam Murray (*The Mandela Catalogue*)
+- Cesar Torres, Jonah Marshall, The Intruder, and Adam Murray (*The Mandela Catalogue*)
 
   ── ･ ｡ﾟ☆: **Languages** .☽ .* :☆ﾟ. ──
 
@@ -56,7 +56,7 @@ PokéPasta enjoyer! (Snow on Mt. Silver HELL YEAH!)
 
 ↳- **Interactions** -༉‧₊˚✧
 
-*C+H is welcome! (Especially if you're  cosplaying as Blue/Red/Ethan :3). I block if I feel uncomfortable Idgaf.*
+*C+H is welcome! I block if I feel uncomfortable Idgaf.*
 
 *If I interact with you, one of them is either because...* 🎤
 
