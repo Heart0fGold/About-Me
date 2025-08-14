@@ -9,7 +9,7 @@
 
 💫 ↳ ❝ [**Basic Informations**] ¡! ❞ 💫
 
-Names you can call me : Dark, Ethan, Slingshot, or Karl
+Names you can call me : Aurum, Ethan, Karl, or Slingshot
 
 Age : 4-teen
 
