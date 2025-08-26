@@ -17,7 +17,7 @@ Nationality : IDN 🇮🇩
 
 Fav colours : Golden, black, crimson, white, and cerulean.
 
-Likes : Playing games, drawing, sleeping, biology, history of Napoleonic Wars and World Wars (or wars in general + some history of Revolutions), Greek mythology, and psychological horror.
+Likes : Playing games, drawing, sleeping, biology, history of Napoleonic Wars and World Wars (or wars in general + some history of revolutions), Greek mythology, and psychological horror.
 
 Gen 2 enthusiast! (Cyndaquil my boy <3)
 
@@ -35,9 +35,10 @@ PokéPasta enjoyer! (Snow on Mt. Silver HELL YEAH!)
 
 🎮 ︶꒦꒷♡ **Others** ♡꒷꒦︶ 🎮
 
-- Pokémon TCG Pocket Edition (Gold / Hibiki)
-- Ponytown (Ethan / D4rk 🌟)
+- Pokémon TCG Pocket Edition (Eth4n)
+- Ponytown (Ethan / Karl 🌟)
 - Roblox (OnlyFellow_LAHplayz)
+- Discord (jxst_d4rkurinkuu_
 
   ![tumblr_ebe45fdb22b9d22974eed2b43a6eda28_deed719c_1280](https://github.com/user-attachments/assets/21554f4c-2ef4-4200-a033-ab9ac54ae0b9)
 
