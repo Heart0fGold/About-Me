@@ -27,7 +27,7 @@ PokéPasta enjoyer! (Snow on Mt. Silver HELL YEAH!)
 
 🌟 ⇢ ˗ˏˋ **Fandoms** ࿐ྂ 🌟
 
-- Pokémon 💖 (my current hyperfixation!)
+- Pokémon 💖
 - Guts and Blackpowder💥
 - Phighting! ⚔️
 - The Mandela Catalogue 📷
@@ -38,7 +38,7 @@ PokéPasta enjoyer! (Snow on Mt. Silver HELL YEAH!)
 - Pokémon TCG Pocket Edition (Eth4n)
 - Ponytown (Ethan / Karl 🌟)
 - Roblox (OnlyFellow_LAHplayz)
-- Discord (jxst_d4rkurinkuu_
+- Discord (zwelichtsxnnee)
 
   ![tumblr_ebe45fdb22b9d22974eed2b43a6eda28_deed719c_1280](https://github.com/user-attachments/assets/21554f4c-2ef4-4200-a033-ab9ac54ae0b9)
 
@@ -51,7 +51,7 @@ PokéPasta enjoyer! (Snow on Mt. Silver HELL YEAH!)
 
   ── ･ ｡ﾟ☆: **Languages** .☽ .* :☆ﾟ. ──
 
-  You might have read this before. I mainly speak English and Indonesia. I can also speak German and French, tho not alot, just the basics :3. I'm trying to learn Russia and Greek. That's it.
+  You might have read this before. I mainly speak English and Indonesia. I can also speak German and French, tho not alot, just the basics :3. That's it.
 
  ![umbreon-pokemon](https://github.com/user-attachments/assets/25bde207-6dcc-4fd5-a512-a13973f62098)
 
@@ -84,7 +84,7 @@ For PokéSpe/manga, I *only know* the characters and not the storyline.
 
 Also sign my strawpage! (strawpage currently having problems receiving drawing so yeah-)
 
-I *fictkin* for Ethan (and all his Poképasta vers., especially Blake), Slingshot, and Karl/Kaub Officer! ^^ (I doubt there'll be doubles cause ya'll fictkin either Blue, Red, or Silver).
+I *fictkin* for Ethan (and all his Poképasta vers.), Slingshot, and Karl/Unnamed 1. Garde zu Fuß officer! ^^ (I doubt there'll be doubles cause ya'll fictkin either Blue, Red, or Silver).
 
   ![tumblr_oeowo5yvov1vgzd4so2_250](https://github.com/user-attachments/assets/c131adf5-ea45-486d-83bc-c2cdb218a582)
 
