@@ -1,5 +1,5 @@
 # ೃ⁀➷ Introduction! ‧͙⁺˚*･༓☾
-### By D4rktheJohtonian✨
+### By Heart0fGold✨
 
 ![Spr_B2W2_Red](https://github.com/user-attachments/assets/751ec9c7-3f29-42c9-b072-b9e390449bb9)
 ![Spr_HGSS_Ethan](https://github.com/user-attachments/assets/3d72d999-62d1-48c0-9cf8-bb9c1b554412)
