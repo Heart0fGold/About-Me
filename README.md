@@ -38,14 +38,14 @@ PokéPasta enjoyer! (Snow on Mt. Silver HELL YEAH!)
 - Pokémon TCG Pocket Edition (Eth4n)
 - Ponytown (Ethan / Karl 🌟)
 - Roblox (OnlyFellow_LAHplayz)
-- Discord (zwelichtsxnnee)
+- Discord (zwelichtsxnnee_)
 
   ![tumblr_ebe45fdb22b9d22974eed2b43a6eda28_deed719c_1280](https://github.com/user-attachments/assets/21554f4c-2ef4-4200-a033-ab9ac54ae0b9)
 
 **˚ ༘♡ ·˚꒰ **Favourite Characters from Every Fandom** ꒱ ₊˚ˑ༄**
 
 - Ethan, Red, Calem, Erika, Colress, Steven, Blue, Silver, Serena, and Cynthia. For the Pokémons : Umbreon, Cyndaquil, Celebi, Victini, Sylveon, Hisuian Samurott, Serperior, Scorbunny, and Treecko (*Pokémon*)
-- Karl, Barry, American Ferryman, and Jacob. (*Guts and Blackpowder*)
+- Karl, Barry, American Ferryman, and Major Dopfer. (*Guts and Blackpowder*)
 - Slingshot, Rocket, Medkit, Sword, and Shuriken (*Phighting!*)
 - Cesar Torres, Jonah Marshall, The Intruder, and Adam Murray (*The Mandela Catalogue*)
 
@@ -84,7 +84,7 @@ For PokéSpe/manga, I *only know* the characters and not the storyline.
 
 Also sign my strawpage! (strawpage currently having problems receiving drawing so yeah-)
 
-I *fictkin* for Ethan (and all his Poképasta vers.), Slingshot, and Karl/Unnamed 1. Garde zu Fuß officer! ^^ (I doubt there'll be doubles cause ya'll fictkin either Blue, Red, or Silver).
+I *fictkin* for Ethan (and all his Poképasta vers.), Slingshot, and Karl/Unnamed 1. Garde zu Fuß officer! ^^.
 
   ![tumblr_oeowo5yvov1vgzd4so2_250](https://github.com/user-attachments/assets/c131adf5-ea45-486d-83bc-c2cdb218a582)
 
