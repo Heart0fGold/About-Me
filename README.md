@@ -45,9 +45,9 @@ PokéPasta enjoyer! (Snow on Mt. Silver HELL YEAH!)
 **˚ ༘♡ ·˚꒰ **Favourite Characters from Every Fandom** ꒱ ₊˚ˑ༄**
 
 - Ethan, Red, Calem, Erika, Colress, Steven, Blue, Silver, Serena, and Cynthia. For the Pokémons : Umbreon, Cyndaquil, Celebi, Victini, Sylveon, Hisuian Samurott, Serperior, Scorbunny, and Treecko (*Pokémon*)
-- Karl, Barry, American Ferryman, and Major Dopfer. (*Guts and Blackpowder*)
+- Karl, Barry, American Ferryman, Major Dopfer, and Sharpshooter. (*Guts and Blackpowder*)
 - Slingshot, Rocket, Medkit, Sword, and Shuriken (*Phighting!*)
-- Cesar Torres, Jonah Marshall, The Intruder, and Adam Murray (*The Mandela Catalogue*)
+- Cesar Torres, Jonah Marshall, Dave Lee, and Adam Murray (*The Mandela Catalogue*)
 
   ── ･ ｡ﾟ☆: **Languages** .☽ .* :☆ﾟ. ──
 
@@ -82,7 +82,7 @@ I know all Pokémon medias *except* for the anime. I *hate* Goh, Chloe and Journ
 
 For PokéSpe/manga, I *only know* the characters and not the storyline.
 
-Also sign my strawpage! (strawpage currently having problems receiving drawing so yeah-)
+Also sign my strawpage or atabook!
 
 I *fictkin* for Ethan (and all his Poképasta vers.), Slingshot, and Karl/Unnamed 1. Garde zu Fuß officer! ^^.
 
