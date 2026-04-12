@@ -11,7 +11,7 @@
 
 Names you can call me : Aurum, Ethan, Karl, or Slingshot
 
-Age : 4-teen
+Age : 5-teen
 
 Nationality : IDN 🇮🇩 
 
